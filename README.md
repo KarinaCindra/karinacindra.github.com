@@ -1,1 +1,1 @@
-# karinacindra.github.com
+# karinacindra.github.io
